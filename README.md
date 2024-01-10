@@ -1,0 +1,1 @@
+# Lekcja 7 zadanie 6
